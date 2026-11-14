@@ -13,3 +13,6 @@
 
 > In present day, Kim Min-chae (Choi Myung-bin), Na Hee-do's daughter, quits ballet and "runs away" to her grandma's house. During her stay, she comes across her mother's diary, through which the story is then told.
 
+
+
+
